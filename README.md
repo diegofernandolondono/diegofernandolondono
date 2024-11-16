@@ -1,6 +1,5 @@
 - 👋 Hola, soy Diego Fernando Londoño Marin @diegofernandolondono
 - - **Email:** [diegofernando.londono767@comunidadunir.net](mailto:diegofernando.londono767@comunidadunir.net)
-- **Teléfono:** +57 3043942508
 - **Ubicación:** Pereira, Colombia
 
 - - Con experiencia en
